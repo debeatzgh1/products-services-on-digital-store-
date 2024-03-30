@@ -1,25 +1,22 @@
-![img_20220118_144655_15683776899341698060065344786580088970604](https://github.com/debeatzgh1/Profitable-work-from-home-ideas-/assets/120282557/1a11e20e-0f07-43f6-93ee-72e4331dff2b)
-Real apps and sites helps you to get paid performing your favorite activities online.
+Who we are: [Digital store] is your one-stop shop for [Software and hardware products. We're passionate about providing [what makes your products special] and helping you find the perfect [product] for your [lifestyle/need].
+Get the following done on the Digital store without hassle.
+Shop online from home.
+Buy home appliances, audio equipment, shoes, mother care and cosmetics, beauty products, mobile phones and accessories, home essentials and get free shipping and delivery worldwide when you Shop on Digital store.
+Digital store has partnered with top trending brands and stores such as Amazon, Microsoft, AliExpress, , Sprocket etc, to help you get what you need for your activities.
+Find the best products you need from top trending brands and get free shipping and delivery worldwide when you make purchases on Amazon, AliExpress, Microsoft, jumia, Yazing on this platform.
+What we offer: We offer a curated selection of software and hardware products that are [unique selling proposition - high quality, sustainable, etc.].
+Buy websites , mobile apps, blogs and get all your software solutions on the Digital store. 
+Why choose us: With or without technical skills and experiences Digital store will help you to achieve a goal of becoming a successful software developer, homepreneur, digital marketer, blogger, website developer etc.
+With  referral and partnership programs Digital store will refer you to the best platforms, softwares, B2B brands and educational institutes that will help you achieve your goals.
 
-with or without specific skills, investment and reaquirments You can get paid performing your favorite activities such as referring, taking surveys, writing contents, commenting, sharing your thoughts etc.
+Digital stores will refer you to legit platforms that will help you to achieve what you are looking for as an entrepreneur, digital marketer, freelancer, social media manager, model, freelancer,designer etc.
 
-If you are looking for a place to increase revenue with traffic and simple tasks and surveys here is the best place for you.
+Are you looking for a place to earn legal career certificates, badges and degrees? 
 
-B2B partners will help you build personal online stores without inventory and products.
+Do you want to earn developer certificate, architectural certificate, cloud computing certificate, Google developer certificate, Android developer certificate etc.
 
-You are at the best place if you want to build personal assets, and make money online from home.
+Are you looking for a legit place with side hustles, bidding, referral and paid partnership?
 
-To start a business your mobile device with or without investment in this modern world is possible and easy with the help of technology and the internet.
+Digital store has everything you need all in one place.
 
-Build mobile apps, websites, blogs and online stores Access your lifestyle and productivity tools, ideas and content all in one web. 
-
-Improve future career opportunities with free Google cloud education.
-
-Join best paid partnership programs and make money from home promoting brands. 
-
- Improve your lifestyle and productivity with one single web click, 
-Access your lifestyle and productivity tools, ideas and content  all in one web.
-
-Access Link to real apps and sites that pays you performing your favorite activities online for free.
-
-Explore More ideas as you go through my project blogs, pdfs and websites.
+Build anything with ease. We believe in [your company & values] and want to make your shopping, productions and online experience enjoyable.
