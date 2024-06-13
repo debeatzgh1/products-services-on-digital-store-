@@ -1,3 +1,19 @@
+[FAQs](https://github.com/debeatzgh1/Digital-store-/issues/13)
+
+[Home page](https://github.com/debeatzgh1/Digital-store-)
+[See what's New](https://github.com/debeatzgh1/Digital-store-/discussions/18)
+
+[Request New features](https://github.com/debeatzgh1/Digital-store-/discussions/11)
+
+[Online business tools and ideas](https://github.com/Digital-creators-hub/Online-business-tools-and-ideas-for-startups-)
+
+[Our products and services](https://github.com/debeatzgh1/our-products-and-services-)
+
+[Tech business tools and ideas](https://github.com/debeatzgh1/Tech-tools-and-ideas-for-startups)
+
+[Learn more about us](https://gist.github.com/debeatzgh1/98cf571e21881f4a39560503988861d3)
+
+
 Hello there. Let me enlighten you about the products and services offered by Debeatzgh on their Digital store. 
 
 Debeatzgh's Digital store is a treasure trove of valuable resources and ideas to help you build personal assets from scratch, Whether you're looking to delve into the world of online business, seek tech guidance for startups, or explore various aspects of digital creation, Debeatzgh has got you covered. 
